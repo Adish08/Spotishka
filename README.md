@@ -1,2 +1,2 @@
 # Spotishka
-Spotify Adish Ka
+Spotify Adish Ka ;)
